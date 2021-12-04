@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Peymaanabe
-- 👀 I’m interested in Developing T design and creating Apps
+- 👀 I’m interested in Developing , design and creating Apps
 - 🌱 I’m currently learning Blockchain and Javascript
 - 💞️ I’m looking to collaborate on Projects
 - 📫 How to reach me : my email: Parsanaa.co@gmail.com
